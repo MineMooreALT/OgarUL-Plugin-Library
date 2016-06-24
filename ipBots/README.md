@@ -3,4 +3,4 @@ Mabye you can turn it into a paid service
 
 
 ### Why?
-Because we want to insult Moneyclip
+Because we want to insult Moneycow
